@@ -1,1 +1,1 @@
-this is a data for rec_rewild server here https://github.com/wiiboi69/Rec_rewild/
+this is a data for Rec_Old server here https://discord.gg/5n3V3Dm6Zf
